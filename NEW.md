@@ -1,1 +1,0 @@
-Dimon,ti bulka
